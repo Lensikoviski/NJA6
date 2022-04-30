@@ -1,1 +1,1 @@
-# NJA6
+Ths is the website of NJA6
