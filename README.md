@@ -1,2 +1,2 @@
 
-NJA6
+My friends group website
